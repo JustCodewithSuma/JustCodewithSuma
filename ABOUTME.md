@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JustCodewithSuma
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning Java
-- 💞️ I’m looking to collaborate on coding
+- 🌱 Want to know more about me !!??Just drop in gettoknowmycareer@gmail.com 
+- 💞️ I’m looking to collaborate on coding - Come lets together build the future 
 - 📫 Reach me on this account to share your thoughts 
 
 <!---
